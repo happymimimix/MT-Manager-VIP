@@ -1,2 +1,2 @@
 # MT-Manager-VIP
-This is by far the only working VIP crack available on the internet. Backing it up... 
+Backing up a rare resource. 
